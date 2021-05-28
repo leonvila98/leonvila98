@@ -21,3 +21,5 @@ Bash,RESTful API,
 SCRUM.
 
 📫 How to reach me: You can find me on [my LinkedIn profile](https://www.linkedin.com/in/leonvila) you can also send me an email to leonvila98@gmail.com or a message [here](https://wa.link/gg1jl6)
+
+You can see my CV [here](https://drive.google.com/file/d/1KjdLKVoPiJt4PqYFirwpmcagqP9O3GTR/view?usp=sharing)
