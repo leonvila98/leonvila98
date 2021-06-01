@@ -22,4 +22,4 @@ SCRUM.
 
 📫 How to reach me: You can find me on [my LinkedIn profile](https://www.linkedin.com/in/leonvila) you can also send me an email to leonvila98@gmail.com or a message [here](https://wa.link/gg1jl6)
 
-You can see my CV [here](https://drive.google.com/file/d/1VFsP7zBvtLpmpznZbRD_eZ6N1umvJuK6/view?usp=sharing)
+You can see my CV [here](https://drive.google.com/file/d/1ZvN2sZ79pNjqegZvXIxbxmdJY5lW3e9p/view?usp=sharing)
